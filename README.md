@@ -22,4 +22,4 @@ voor 8 stuks
 * 1 theelepel paprikapoeder
 * 1 Bord panko
 
-[img](https://www.leukerecepten.nl/wp-content/uploads/2019/03/wraps-bloemkoolnuggets.jpg)
+![img](https://www.leukerecepten.nl/wp-content/uploads/2019/03/wraps-bloemkoolnuggets.jpg)
